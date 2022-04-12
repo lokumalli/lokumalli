@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with finding love
 - 💬 Ask me about girls
 - 📫 How to reach me: find me...!
-- 😄 Pronouns: ...
+- 😄 Pronouns: it
 - ⚡ Fun fact: ...
