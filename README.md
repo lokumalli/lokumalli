@@ -7,4 +7,3 @@
 - 💬 Ask me about girls
 - 📫 How to reach me: find me...!
 - 😄 Pronouns: it
-- ⚡ Fun fact: I am very funny
